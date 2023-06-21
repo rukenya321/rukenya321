@@ -1,4 +1,4 @@
-                                                        Hello, I go by the name Ruthless Coder.			
+                                                        Hello, my name is Rukenya J.
 From one day to Day One in Tech.
 
 💎 Greatly experienced in UI/UX design
