@@ -23,7 +23,7 @@ From one day to Day One in Tech.
 
 📞 Am your guy so halla at me ASAP at rukenyamunenejoel@gmail.com
 
-✨ Keep coding, stay curious, and always strive for excellence! ✨
+✨ To Learn while Building is the BEST approach ever ✨
 
 
 
