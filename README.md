@@ -1,4 +1,4 @@
-                                                       # Hello, my name is Rukenya J.
+#                                                       Hello, my name is Rukenya J.
 From one day to Day One in Tech.
 
 💎 Greatly experienced in UI/UX design
