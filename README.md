@@ -3,9 +3,6 @@ From one day to Day One in Tech.
 
 💎 Greatly experienced in UI/UX design
 
-💻 Currently in the ALX SE Program
-
-
 
 👩‍💻 Aspiring Full-stack Developer | 🌍 Tech Enthusiast
 
